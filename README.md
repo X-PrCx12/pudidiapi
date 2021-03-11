@@ -5,7 +5,7 @@
 # Sosial Media
 [GITHUB](https://github.com/X-PrCx12) <br>
 [INSTAGRAM](https://instagram.com/dtyagz) <br>
-[WHATSAPP](wa.me/62879065411552) ```Banned``` <br>
+[WHATSAPP](Wa.me/62892938384576) ```Banned``` <br>
 
 # Thanks To 🙏
 
