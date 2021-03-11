@@ -9,8 +9,9 @@
 
 # Thanks To 🙏
 
-ALLAH SWT (TUHAN)
-ORANG TUA
+## ALLAH SWT (TUHAN) 
+<br>
+## ORANG TUA
 
 
 DHLH
