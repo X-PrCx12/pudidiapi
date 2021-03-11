@@ -8,10 +8,10 @@
 [WHATSAPP](Wa.me/62892938384576) ```Banned``` <br>
 
 # Thanks To 🙏
-
-## ALLAH SWT (TUHAN) 
-<br>
-## ORANG TUA
+<lu>
+<li> ALLAH SWT (TUHAN) <br>
+<li> ORANG TUA <br>
+ </li>
 
 
 DHLH
